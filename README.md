@@ -1,3 +1,5 @@
+![FNekByMVQAMTxrh12](https://user-images.githubusercontent.com/79625284/168605010-a3c88c2a-b34b-4950-b71f-1eda5e3cc3f5.png)
+
 ### 中共“骗”字诀不曾改 70年始终欺瞒中国人
 
 王语馨
